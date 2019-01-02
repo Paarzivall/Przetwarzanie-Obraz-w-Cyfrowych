@@ -1,1 +1,1 @@
-# Przetwarzanie-Obraz-w-Cyfrowych
+# Przetwarzanie-Obrazów-Cyfrowych
